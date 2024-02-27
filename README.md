@@ -1,5 +1,5 @@
 # 💫 About Me:
-💬 I'm a computer systems engineering student <br>🔭 Passion for all the tech world <br>🤝 Seeking to create and aport something trough my computer skills
+💬 Passion for all the tech world <br>🤝 Seeking to create and aport something trough my computer skills
 
 
 ## 🌐 Socials:
